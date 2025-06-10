@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on innovative web apps and AI-powered tools
 
-📫 How to reach me: [thomas.pierrick.henry354@gmail.com] (replace with your actual contact info)
+📫 How to reach me: [thomas.pierrick.henry@gmail.com] 
 
 😄 Pronouns: he/him
 
